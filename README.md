@@ -1,2 +1,2 @@
-# JamJammer-3.0
-ZHACKUJ JAMY Z MOJA POMACA
+Killuj jamy i zdobuj dikowe robdixy
+I hacdixuj Jadiksy
