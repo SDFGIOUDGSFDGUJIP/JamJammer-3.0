@@ -1,0 +1,2 @@
+# JamJammer-3.0
+ZHACKUJ JAMY Z MOJA POMACA
